@@ -1,1 +1,2 @@
 # Wladimiro-Acosta
+Arquitecto, urbanista, escenógrafo y profesor. Nació en Odessa, el 29 de junio de 1900 en la Rusia de los zares. Su verdadero nombre era el de Wladimiro Konstamtunansky, aunque el apellido significaba a su vez, una transformación del originario Acosta. De origen sefardí provenía de una familia integrada por ingenieros y artistas que hablaba siete idiomas. De niño Wladimiro padeció enfermedades graves, lo que seguramente lo tornó en un ser curioso e introspectivo, lo cierto es que se educó en un ambiente de alto nivel económico y cultural. 
